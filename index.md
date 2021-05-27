@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Welcome to my 8 Week Transformation"
 ---
 
-I'm glad you are here. I plan to talk about ...
+In this blog, I will be documenting my weightloss journey over the next 8 weeks. I will be keeping track of my workload and diet over these coming weeks.
