@@ -1,0 +1,15 @@
+Welcome to my 8 Week transformation Blog! i will try my best to update daily by journaling what i have done specifically day to day.
+ A little back story to this. I started excersizing in January 2021. Before that, the last time i was in a gym (consistently) was in 2014.
+ 
+January 2021: My initial weight started at roughly 250 Lbs. I had an app on my phone that i had tried using in the past called Freeletics.
+ My town had just built a new gym and the monthly was so affordable that even if i didn't go consistently, i could still afford to not go. 
+ I started with 30 minute HIIT workouts. Conditioning myself before I began weight training. The first 3 weeks were incredibly difficult, at this point I was not changing my diet 
+ and i was purely excersizing by what Freeletics was telling me to do. As much as i didn't want to do some of the workouts, i would constantly repeat Nike's slogan in my head, "just do it, just do it"
+
+ March 2021: Within 2 months of consistent training and starting to change the horrible eating habits that i had aquired at my previous sales job. I was down 15 Lbs to 235 and feeling immensely better.
+ At this point i was realizing that changing my diet and researching how my body interacts with good carbs, bad carbs, why fats are important and what the best sources of fats and carbs are and where they
+ come from. March was easily my research and discovery phase because i knew at some point, my progress would begin to flatten out a little bit.
+
+ May 2021: Im writing this as of May 27th, 2021 and my Weight as of this morning was 214.6 Lbs. Now as i'm very happy with that weight i wont forget that i have a goal to meet, while i find it important
+ to celebrate the small victories i remind myself to snap out of that victory to move on to the next. My goals will be listed at the bottom of my introduction. I will also provide picture progress and will do
+ my absolute best to update my daily food journal with what i eat. 
